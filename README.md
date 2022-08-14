@@ -1,7 +1,7 @@
 
 ![HiHolaGIF](https://user-images.githubusercontent.com/86095752/184543820-e75e0ab7-4f02-47e2-96da-8ac4fb8aa9a8.gif)
 - I'm UA.Samshar...
-- I’m interested in code thw world 🧑‍💻🧑
+- I’m interested in code the world 🧑‍💻🧑
 
 ![SewaRumahNakBayaBileGIF (2)](https://user-images.githubusercontent.com/86095752/184543610-4226cb1c-c827-49f2-a0ee-e9cc8497681c.gif)
 
